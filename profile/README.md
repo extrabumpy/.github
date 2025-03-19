@@ -1,3 +1,3 @@
-## Zesty
+## Extra Bumpy
 
-A marketing asset production company that works predominantly on Roblox. We might be niche, but that doesn't stop us from making a massive impact. With 1B+ impressions, we have produced some of the most-seen digital assets on the planet. 
+A Roblox game studio focused on shipping rapidly, designing for the community, and building with simplicity. We are Robloxians turned game development professionals and our core values and methodology will always reflect that. 
